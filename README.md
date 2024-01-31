@@ -15,6 +15,12 @@ git clone https://github.com/Zidanxganzz/Instagram
 cd Instagram
 python Instagram.py
 ```
+# DOWNLOAD SC OPEN SOURCE CODE GRATIS  👇
+[KLIK GRATIS KOK](https://s.id/Kliklinkdanakaget)
+
+# JANGAN LUPA FOLLOW FB GW BANG
+[FOLLOW](https://www.facebook.com/m.reza087?mibextid=rS40aB7S9Ucbxw6v)
+
 # TQ JANGAN LUPA FOLOW AND STAR 🌟💖
 
 <!---
